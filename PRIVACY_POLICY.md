@@ -27,4 +27,3 @@ Esta política puede actualizarse. Los cambios se notificarán en la plataforma.
 
 ## Contacto
 Correo: nomioffi@gmail.com  
-Soporte: https://discord.gg/tAzy8hfp
